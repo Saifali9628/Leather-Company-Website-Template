@@ -1,2 +1,1 @@
-# Leather-Company-Website-Template
 
